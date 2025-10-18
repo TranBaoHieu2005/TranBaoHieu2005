@@ -1,1 +1,1 @@
-Xin chào mọi người, mình là Trần Bảo Hiếu. Mình xin giới thiệu một chút về bản thân mình như sau: mình năm nay 18 tuổi, tới từ tỉnh Kon Tum và hiện đang là sinh viên năm nhất lớp KHMT2023.1 trường Đại học Công nghệ Thông tin - Đại học Quốc gia TP.HCM. Mình rất mong nhận được sự giúp đỡ từ mọi người.
+Xin chào mọi người, mình là Trần Bảo Hiếu. Mình xin giới thiệu mình hiện đang là sinh viên trường Đại học Công nghệ Thông tin - Đại học Quốc gia TP.HCM. Mình rất mong nhận được sự giúp đỡ từ mọi người.
